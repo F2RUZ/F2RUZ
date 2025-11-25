@@ -128,7 +128,7 @@ More than **90% of my students** successfully build:
 
 ## 📞 Contact
 - **Email:** neyrocoder@gmail.com  
-- **Phone:** +998 91 005 09 13  
+- **Phone:** +998 99 620 63 36  
 - **GitHub:** *You’re already here 😊*
 
 ---
